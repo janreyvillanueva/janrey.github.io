@@ -1,2 +1,2 @@
-# janrey.github.io
+# janreyvillanueva.github.io
 Quiz 1
